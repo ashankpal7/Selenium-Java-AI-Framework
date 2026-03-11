@@ -1,7 +1,18 @@
 # 👋 Hi, I'm Amol Shankpal
 
 **Automation Test Engineer | Selenium | Java | AI | API | Database**
-**Automation Test Engineer | Selenium | Java | AI | API | Database**
+"Top 50 Python Interview Questions Cheat Sheet (FAANG / Product Companies)" which is extremely useful for Python developer interviews.
+"Top 50 Python Interview Questions Cheat Sheet (FAANG / Product Companies)" which is extremely useful for Python developer interviews.
+"Top 50 Python Interview Questions Cheat Sheet (FAANG / Product Companies)" which is extremely useful for Python developer interviews.
+"Top 50 Python Interview Questions Cheat Sheet (FAANG / Product Companies)" which is extremely useful for Python developer interviews.
+"Top 50 Python Interview Questions Cheat Sheet (FAANG / Product Companies)" which is extremely useful for Python developer interviews.
+"Top 50 Python Interview Questions Cheat Sheet (FAANG / Product Companies)" which is extremely useful for Python developer interviews.
+"Top 50 Python Interview Questions Cheat Sheet (FAANG / Product Companies)" which is extremely useful for Python developer interviews.
+"Top 50 Python Interview Questions Cheat Sheet (FAANG / Product Companies)" which is extremely useful for Python developer interviews.
+"Top 50 Python Interview Questions Cheat Sheet (FAANG / Product Companies)" which is extremely useful for Python developer interviews.
+"Top 50 Python Interview Questions Cheat Sheet (FAANG / Product Companies)" which is extremely useful for Python developer interviews.
+"Top 50 Python Interview Questions Cheat Sheet (FAANG / Product Companies)" which is extremely useful for Python developer interviews.
+
 
 ---
 
